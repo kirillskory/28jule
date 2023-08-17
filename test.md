@@ -9,4 +9,4 @@
 
 kkvkkvkv
 
-there is inform from master branch
+there a new code from junior programmer
