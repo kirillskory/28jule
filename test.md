@@ -9,4 +9,4 @@
 
 kkvkkvkv
 
-there a new code from junior programmer absolutely new funtional
+new code from some jun
